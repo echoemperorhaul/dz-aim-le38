@@ -1,4 +1,4 @@
-
+dayz aim ultimate Scripts - vehicle spawn and auto-vehicle mine disarm is the best dayz aim scripts, featuring vehicle spawn and auto-vehicle mine disarm. Safe, undetected, and
 
 
 
